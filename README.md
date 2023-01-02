@@ -1,6 +1,6 @@
 ### Hi guys， I‘m Arthur 👋
-Welcome to 2022.
-在2022，希望自己能稳步前行，不负岁月。（In 2022, I hope that I can move forward steadily and live up to the years）
+Welcome to 2023.
+2023已经悄然来临，也希望自己在新的一年能稳步前行，不负岁月。（In 2023, I hope that I can move forward steadily and live up to the years）
 
 <div align="center">
   
