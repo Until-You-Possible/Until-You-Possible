@@ -1,6 +1,6 @@
 ### Hi guys， I‘m Arthur 👋
-Welcome to 2023.
-2023已经悄然来临，也希望自己在新的一年能稳步前行，不负岁月。（In 2023, I hope that I can move forward steadily and live up to the years）
+Welcome to 2024.
+悄然之间， 从上海到成都已经过去好几个月了， 一切都在朝着预期的方向前进，2024也要加油呀
 
 <div align="center">
   
