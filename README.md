@@ -1,6 +1,6 @@
 ### Hi guys， I‘m Arthur 👋
 Welcome to 2024.
-悄然之间， 从上海到成都已经过去好几个月了， 一切都在朝着预期的方向前进，2024也要加油呀
+迎来2024， 满是期待
 
 <div align="center">
   
